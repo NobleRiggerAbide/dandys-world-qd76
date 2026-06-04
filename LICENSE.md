@@ -1,4 +1,4 @@
-#  
+#  Experience dandy's world like never before with instant Scripts for dandy's world, the #1 Script. Includes private server access and one-hit kill for
 
 
 
